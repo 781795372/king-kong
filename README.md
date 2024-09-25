@@ -1,2 +1,2 @@
 # king-kong
-大金刚king kong
+大金刚 king kong!!!
